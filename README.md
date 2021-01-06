@@ -13,5 +13,4 @@ As Toyoda said:
 
 > Before you say you can't do something, 
 > try it.
-![abcd](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.123rf.com%2Fphoto_39009704_loei-march-2-nissan-370z-sport-car-hello-kitty-edition-on-display-at-the-2nd-thailand-international-.html&psig=AOvVaw221CqyCyEjobJ5IbpNpILR&ust=1610002444894000&source=images&cd=vfe&ved=2ahUKEwjoyeXP3IbuAhUBF7cAHSrdD40Qr4kDegUIARD3AQ
-)
+![abcd](https://www.drivespark.com/images/2020-08/toyota-urban-cruiser-exterior-2.jpg)
