@@ -7,3 +7,7 @@
    1. Enter Maximum
    1. Enter Minimum
 
+As Toyoda said:
+
+> Before you say you can't do something, 
+> try it.
